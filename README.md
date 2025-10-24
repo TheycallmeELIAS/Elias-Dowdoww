@@ -11,7 +11,7 @@ More things about me... :
 - 13+
 - Introvert / ISFP
 - anger issues
-- not good at socializing
+- not good at socializing but I still don't bite! 
 
 
 (FOR PONY TOWN PLAYER ONLY.)
@@ -22,13 +22,13 @@ DNI if :
 - pedophile
 - toxic ppl
 - disgusting, making me or friends uncomfortable
-- under 13
+- under 13 unless friends
 
 
 ¬🍒
 
 
-I usually c+h with Sasha (@sxshaYAEY) my evil twin, but if I'm alone, please ask or w2i if you want to c+h with me. If you want to int, feel free. You can whisper to int. Please do iwc whenever I'm not in a good mood. I'm not good at socializing. I can be a bit shy and uncomfortable around new ppl I meet. If I begin unfriendly or harsh around you. That's mean I already don't like you if you begin rude or things make me uncomfortable. If I make you feel uncomfortable or hurt your feelings, please tell me. I'm still petty new in PT.
+I usually c+h with Sasha (@sxshaYAEY) my evil twin, my 6 years friend, but if I'm alone, please ask or w2i if you want to c+h with me. If you want to int, feel free. You can whisper to int. Please do iwc whenever I'm not in a good mood. I'm not good at socializing. I can be a bit shy and uncomfortable around new ppl I meet. If I begin unfriendly or harsh around you. That's mean I already don't like you if you begin rude or things make me uncomfortable. If I make you feel uncomfortable or hurt your feelings, please tell me. I'm still petty new in PT.
 
 
 
@@ -40,7 +40,7 @@ If you tried to talk to me, I can be pretty awkward and a bit shy so sorry. I st
 
 
 
-If you want to find me, I usually with my friend. Or I usuay cos as Shadow. Cuz yeah. He's my fav STH character.
+If you want to find me, I usually with my friend. Or I usually cos as Shadow. Cuz yeah. He's my fav STH character.
 
 
 ¬🗨️
