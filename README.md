@@ -9,8 +9,7 @@ call me Elias, Shadow or Dowdow.
 More things about me... :
 - He/ Him,, Boy
 - 13+
-- Introvert / ISFP
-- anger issues
+- Introvert / INFJ
 - not good at socializing but I still don't bite! 
 
 
@@ -28,11 +27,11 @@ DNI if :
 ¬🍒
 
 
-I usually c+h with Sasha (@sxshaYAEY) my evil twin, my 6 years friend, but if I'm alone, please ask or w2i if you want to c+h with me. If you want to int, feel free. You can whisper to int. Please do iwc whenever I'm not in a good mood. I'm not good at socializing. I can be a bit shy and uncomfortable around new ppl I meet. If I begin unfriendly or harsh around you. That's mean I already don't like you if you begin rude or things make me uncomfortable. If I make you feel uncomfortable or hurt your feelings, please tell me. I'm still petty new in PT.
+I usually c+h with Sasha (@sxshaae) my evil twin, my 7 years friend, but if I'm alone, feel free to int or whisp, or ask me if you want to c+h with me or if there's c+h in my name feel free. Please do iwc. I'm not good at socializing. I can be a bit shy and awkward around new ppl I meet. If I begin unfriendly or harsh around you. That's mean I already don't like you if you begin rude or things make me uncomfortable. If I make you feel uncomfortable or hurt your feelings, please tell me. I'm still petty new in PT.
 
 
 
-If you tried to talk to me, I can be pretty awkward and a bit shy so sorry. I still learn how to socializing.
+I still learn how to socializing.
 
 
 
@@ -40,7 +39,7 @@ If you tried to talk to me, I can be pretty awkward and a bit shy so sorry. I st
 
 
 
-If you want to find me, I usually with my friend. Or I usually cos as Shadow. Cuz yeah. He's my fav STH character.
+If you want to find me, I usually with my friend. Or I usually cos as Shadow or irl me. Cuz yeah. Shadow my fav STH character.
 
 
 ¬🗨️
