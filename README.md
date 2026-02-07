@@ -32,7 +32,7 @@ I usually c+h with Sasha (@sxshaae) my evil twin, my 7 years friend, but if I'm 
 DNI int if I had DNI, DNIUC, DNIUF or DNIUID in my name. Feel free to int if I had no any DNIs in my name, int in my name, c+h and w2i. 
 
 
-I still learn how to socialising. I'm really bad at socializing.
+I still learn how to socializing. I'm really bad at socializing.
 
 
 
@@ -50,7 +50,12 @@ I don't usually online in PT since there's nothing fun for me. I usually online 
 
 
 ⛔ = HVY DNI/DNIUC, busy, bad mood, afk, offtab.
+
+
 🌙 = Semi-afk, kinda busy, might DNIUF or not, studying, drawing, w2i and c+h. 
+
+
 🟢 = Feel free to int and c+h but still iwc, free, nothing to do.
+
 
 But I mostly afk so... Yes. 
