@@ -1,4 +1,4 @@
-78# 1409
+#0802
 
 Heya, Elias is here.
 call me Elias, Shadow or Dowdow.
@@ -27,11 +27,11 @@ DNI if :
 ¬🍒
 
 
-I usually c+h with Sasha (@sxshaae) my evil twin, my 7 years friend, but if I'm alone, feel free to int or whisp, or ask me if you want to c+h with me or if there's c+h in my name feel free. Please do iwc. I'm not good at socializing. I can be a bit shy and awkward around new ppl I meet. If I begin unfriendly or harsh around you. That's mean I already don't like you if you begin rude or things make me uncomfortable. If I make you feel uncomfortable or hurt your feelings, please tell me. I'm still petty new in PT.
+I usually c+h with Sasha (@sxshaae) my evil twin, my 7 years friend, but if I'm alone, feel free to int or whisp, or ask me if you want to c+h with me or if there's c+h in my name feel free. Please do iwc. I'm not good at socializing. I can be REALLY anxious and awkward around new ppl I meet. Sp PLEASE, so IWC (Int with caution). If I begin unfriendly or harsh around you. That's mean I already don't like you if you begin rude or things make me uncomfortable. If I make you feel uncomfortable or hurt your feelings, please tell me. I'm still petty new in PT.
 
 
 
-I still learn how to socializing.
+I still learn how to socialising. I'm really bad at socializing.
 
 
 
