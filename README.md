@@ -27,7 +27,7 @@ DNI if :
 ¬🍒
 
 
-I usually c+h with Sasha (@sxshaae) my evil twin, my 7 years friend, but if I'm alone, feel free to int or whisp, or ask me if you want to c+h with me or if there's c+h in my name feel free. Please do iwc. I'm not good at socializing. I can be REALLY anxious and awkward around new ppl I meet. So PLEASE, so IWC (Int with caution). If I begin unfriendly or harsh around you. That's mean I already don't like you if you begin rude or things make me uncomfortable. If I make you feel uncomfortable or hurt your feelings, please tell me. I'm still petty new in PT.
+I usually c+h with Sasha (@sxshaae) my evil twin, my 7 years friend, but if I'm alone, feel free to int or whisp, or ask me if you want to c+h with me or if there's c+h in my name feel free. Please do iwc. I'm not good at socializing. I can be REALLY anxious and awkward around new ppl I meet. So Please do IWC (Int with caution). If I begin unfriendly or harsh around you. That's mean I already don't like you if you begin rude or things make me uncomfortable. If I make you feel uncomfortable or hurt your feelings, please tell me. I'm still petty new in PT.
 
 DNI int if I had DNI, DNIUC, DNIUF or DNIUID in my name. Feel free to int if I had no any DNIs in my name, int in my name, c+h and w2i. 
 
